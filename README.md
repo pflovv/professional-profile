@@ -82,7 +82,7 @@ Credential ID: EX8PPL8S514Q1M9D
 Communication University of China (2003-2007)
 
 ## LANGUAGES
-* English (B2)
+* English (Full professional proficiency)
 * Estonian (A2, currently studying B1)
 * Chinese (Native)
 
